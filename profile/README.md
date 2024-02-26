@@ -2,4 +2,4 @@
 
 We're **barazeet**, and we love solving business problems with elegant solutions.
 
-This is where we work on our technology.
+This is where we work on our technology. You can follow us on LinkedIn https://www.linkedin.com/company/99053968/ or reach out on www.barazeet.com
